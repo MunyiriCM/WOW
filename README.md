@@ -1,2 +1,2 @@
 # WOW
-I am getting to know this thing now
+I am getting to know this thing now!
